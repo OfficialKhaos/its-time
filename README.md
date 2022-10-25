@@ -1,4 +1,4 @@
-# its-time.
+# its-time
 if you are reading this, im most likely gone. 
 this is a result of constantly being verbally abused, treated like shit, and depression.
 i know my school friends probably wont see this but i just want to thank them for always being good to me when no one else was.
