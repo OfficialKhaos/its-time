@@ -9,4 +9,5 @@ i would hope that id be missed but who am i kidding. no one fucking loves me in 
 bullied. depressed. lonely. 
 as a final message i hope all that have been good to me will have the best lives ever. 
 again thanks to everyone that has noticed me in this hell.
+tuesday. after school. im gone. forever.
 goodbye.
